@@ -40,7 +40,8 @@ Good question. It's currently under review, and from the date of my publishing t
  - [Laszlo the Gargoyle on Kobo Books](https://store.kobobooks.com/en-us/Search?Query=9798215746196)
  - [Laszlo the Gargoyle on Amazon Books](https://www.amazon.com/Laszlo-Gargoyle-Frank-Tudor-ebook/dp/B0BTNSKGL4)
  - [Laszlo the Gargoyle on Scribd](https://www.scribd.com/search?query=9798215746196&language=0)
- - Laszlo the Gargoyle on Google Play and Google Books (currently under review).
+ - [Laszlo the Gargoyle on Google Play](https://play.google.com/store/books/details?id=EeyrEAAAQBAJ) 
+ - [Laszlo the Gargoyle on Google Books](https://books.google.com/books/about?id=EeyrEAAAQBAJ&hl=en)
 
 ## Do you have Social Media?
 
